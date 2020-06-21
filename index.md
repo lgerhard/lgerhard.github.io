@@ -9,3 +9,5 @@ und hat im Gegensatz zu vielen anderen Promis sein Leben im Griff.
 * gelassen
 * charmant
 * einfühlsam
+
+> Mein Vater gab mir den besten Rat meines Lebens. Er sagte: „Was du auch tust, auf keinen Fall darfst du mit 65 aufwachen und darüber nachdenken, was du versäumt hast.“
